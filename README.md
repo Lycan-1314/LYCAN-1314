@@ -6,7 +6,7 @@
   🗡️
   [Me and My besties shared Straw](https://starburstplatonicness.straw.page)
   ☀️
-  [ata](https://lycan1314.atabook.org/?page=1)
+  [ata](https://swordlycan.atabook.org/?page=1)
   🐾
 
   ⚔️ DBLS ALWAYS WELCOME!!!!
