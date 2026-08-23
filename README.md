@@ -8,7 +8,7 @@
   
   🐾 Theriotypes - Main) Kestrels, Others) BlackWolves, British short hairs, and Shrews
 
-  🐦‍🔥 Other Kintypes - Weird bird-dragon thingy(Cockatraice maybe…?)
+  🐦‍🔥 Other Kintypes - Weird bird-dragon thingy(Cockatrice maybe…?), Phoenix!!
 
   🔥 I happen to commonly have a deep spiritual connection to birds and bird-related things…
 
