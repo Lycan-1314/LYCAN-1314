@@ -21,7 +21,7 @@
 
   😋 W2I - Sourcemates(Sword, n Mr Peabody), Phighting, Regretevator, JSAB, and most anime!
 
-  😕 DNW2I - DW, Forsaken, MHA, DOD, GAG, homophobes, anti-alterhumanity, Non-sharing Sword/Mr Peabody Yumes
+  😕 DNW2I - DW, Forsaken, MHA, DOD, GAG, homophobes, anti-alterhumanity, Non-sharing Sword/Mr Peabody Yumes, YANSWORD…
 
   💔 DNI - basic criteria, under 13, Voidsharing/Hyper-nonsharing Yumes of ANY character, if you KNOW you are toxic, Swocket enforcers 
 
