@@ -10,6 +10,8 @@
   🐾
 
   ⚔️ DBLS ALWAYS WELCOME!!!!
+
+  ‼️‼️I DONT IMMEDIATELY BLOCK OVER YANSWORD BUT YANSWORD IWEC‼️‼️
   
   ☀️ Kins - Main) Sword, Secondary) Mr Peabody, Others) Pest, and Winter(WoF)
   
